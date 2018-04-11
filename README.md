@@ -1,3 +1,5 @@
-test v2
-test v3
-pull request testfff
+My relationship with design started in 2008 as something casual that I did for a certain project to help a friend. But in a certain moment it became more – I started to take it not just as a hobby. Then I realized that it was more than casual – it was exclusive, it was a passion. It still is. And at that point I decided to turn my passion into a profession, so I started working as a freelance graphic designer and meanwhile I took intensive courses in graphic and web design.
+
+And in order to fight for my cause in March 2013, I started my full-time profession in the design field. That was the year I became Graphic and UI/UX Designer in Berlle Creative Studio and once again rediscovered that creating was and still is something more than just work – it’s a pleasure!
+
+--- Soon I'll add some projects here ---
